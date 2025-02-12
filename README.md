@@ -14,4 +14,4 @@
 🔗 [Мой GitHub](https://github.com/Rayishin)
 
 
-![Моё фото](https://vk.com/photos233388479?z=photo233388479_457243735%2Fphoto_feed233388479)
+![Моё фото](https://i.imgur.com/GjQZos5.jpeg)
